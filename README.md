@@ -1,1 +1,1 @@
-programmer analyst
+programmer jr
